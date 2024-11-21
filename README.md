@@ -4,7 +4,7 @@ a Kicked-Out Activist
 
 Welcome to the Truth (Yeah, You Won’t Like It)
 
-Hey. I’m Troy Hanken. If you’re here, you’ve probably heard I got kicked out of Extinction Rebellion. Yeah, that Extinction Rebellion. The group that’s supposed to be at the frontlines of saving the planet, right? Well, buckle up, because I’ve got a lot to say about that.
+If you’re here, you’ve probably heard I got kicked out of Extinction Rebellion. Yeah, that Extinction Rebellion. The group that’s supposed to be at the frontlines of saving the planet, right? Well, buckle up, because I’ve got a lot to say about that.
 
 Why I’m No Longer in XR (Spoiler: They’ve Gone Soft)
 
