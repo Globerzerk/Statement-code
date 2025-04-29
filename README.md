@@ -58,5 +58,5 @@ Drop your details below if you’re ready to get serious about saving this plane
 
 Disclaimer: This is not about cozying up to anyone. This is not about building alliances with people who profit from the destruction of our world. This is about action, not optics.
 
-
-                                                                                                                                                                                                                                                                      Sigm4earth.
+Yours truly,
+Sigm4earth.
