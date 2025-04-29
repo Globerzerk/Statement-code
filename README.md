@@ -57,3 +57,6 @@ Want to Join the Fight?
 Drop your details below if you’re ready to get serious about saving this planet. This isn’t a game, and if you’re looking for safe, convenient activism, this isn’t for you. But if you’re ready to make a real impact, you know where to find me.
 
 Disclaimer: This is not about cozying up to anyone. This is not about building alliances with people who profit from the destruction of our world. This is about action, not optics.
+
+
+                                                                                                                                                                                                                                                                      Sigm4earth.
